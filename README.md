@@ -4,3 +4,6 @@ eth
 btc
 sol
 usdt
+for thr love of my life
+sea lover
+778Shamim
